@@ -1,1 +1,1 @@
-HPI Bachelor
+Student at HPI
