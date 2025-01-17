@@ -1,1 +1,1 @@
-Student at HPI
+Student
